@@ -1,0 +1,1 @@
+# Hisense-32E5600EU-Microsoft-Playready-SL3000
